@@ -1,4 +1,4 @@
-# Bhuvana Kotha
+# bhuvanak04
 
 https://github.com/bhuvanak04/BTTAI-portfolio 
 
